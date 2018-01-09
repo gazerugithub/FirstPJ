@@ -1,3 +1,3 @@
-# FirstPJ
+﻿# FirstPJ
 Test for my new account
-�ύX
+変更です。
